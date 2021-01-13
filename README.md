@@ -8,3 +8,4 @@
 7. Philips Avance Collection Airfryer XXL (cirka 1400 ved Amazon.de)
 8. Bose QuietComfort 20 Carrying Case - Black: https://www.amazon.de/-/en/gp/product/B00Y8NWHL0/ref=ox_sc_act_title_2?smid=A3JWKAKR8XB7XF&psc=1
 9. Western Digital WDBMMA01 10 TB harddisk (til erstatning for gammel NAS): https://www.amazon.de/-/en/WD100EFAX-WD-Red-Hard-Drive/dp/B0719498XY/ref=sr_1_1?dchild=1&keywords=WD100EFAX&qid=1610491780&sr=8-1&th=1
+10. Spil "Bohnanza": https://snydepels.dk/products/bohnanza
