@@ -10,3 +10,4 @@
 9. Western Digital WDBMMA01 10 TB harddisk (til erstatning for gammel NAS): https://www.amazon.de/-/en/WD100EFAX-WD-Red-Hard-Drive/dp/B0719498XY/ref=sr_1_1?dchild=1&keywords=WD100EFAX&qid=1610491780&sr=8-1&th=1
 10. Spil "Bohnanza": https://snydepels.dk/products/bohnanza
 11. Wild Turkey 101 8 år: https://lbvin.dk/shop/wild-turkey-8-401p.html
+12. Spil "Orlog" med "Text on back" og "1 set og gods+box": https://www.etsy.com/dk-en/listing/957341562/complete-orlog-game-set-20-gods-12-dice?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=orlog&ref=sr_gallery-1-1&from_market_listing_grid_organic=1&bes=1&variation0=1830282038&variation1=1896898172
