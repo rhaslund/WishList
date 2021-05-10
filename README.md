@@ -11,3 +11,4 @@
 10. Spil "Bohnanza": https://snydepels.dk/products/bohnanza
 11. Wild Turkey 101 8 år: https://lbvin.dk/shop/wild-turkey-8-401p.html
 12. Spil "Orlog" med "Text on back" og "1 set og gods+box": https://www.etsy.com/dk-en/listing/957341562/complete-orlog-game-set-20-gods-12-dice?ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=orlog&ref=sr_gallery-1-1&from_market_listing_grid_organic=1&bes=1&variation0=1830282038&variation1=1896898172
+13. Watch strap: Fortis bund strap: https://www.chrono24.com/fortis/braceletstrap-fortis-nos-bund-strap--id17569500.htm
