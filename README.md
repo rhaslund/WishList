@@ -1,7 +1,7 @@
 # WishList
 1. Bose QuietComfort 20 Carrying Case - Black: https://www.amazon.de/-/en/gp/product/B00Y8NWHL0/ref=ox_sc_act_title_2?smid=A3JWKAKR8XB7XF&psc=1
 2. Spil "Bohnanza": https://snydepels.dk/products/bohnanza
-3. Peanuts "Never trust a smiling teacher" poster, photo: https://www.picclickimg.com/d/w1600/pict/303551527429_/Never-Trust-A-Smiling-Teacher-Vintage-Charlie-Brown.jpg
+3. Peanuts "Never trust a smiling teacher" poster: https://www.ebay.com/itm/303551527429?hash=item46ad14ba05:g:vKIAAOSwM1depeJc, photo: https://www.picclickimg.com/d/w1600/pict/303551527429_/Never-Trust-A-Smiling-Teacher-Vintage-Charlie-Brown.jpg
 4. Plakat med Ted Lasso: https://arturodraws.bigcartel.com/product/ted-lasso?fbclid=IwAR08s-QV3mdEZQvdkACyctfqzkAPZkvfLMhLS1dMawfk4tn93CTjGTW6pjY
 5. Watch strap: Fortis bund strap: https://www.uhrband24.com/en/watchbands/leatherbands/1243/fortis-calf-padded-watchband-20/18-mm-black-99.111.01.010
 6. Wallmount for two drumsticks
