@@ -9,3 +9,4 @@
 8. Philips Avance Collection Airfryer XXL (cirka 1400 ved Amazon.de)
 9. Western Digital WDBMMA01 10 TB harddisk (til erstatning for gammel NAS): https://www.amazon.de/-/en/WD100EFAX-WD-Red-Hard-Drive/dp/B0719498XY/ref=sr_1_1?dchild=1&keywords=WD100EFAX&qid=1610491780&sr=8-1&th=1
 10. Wild Turkey 101 8 år: https://lbvin.dk/shop/wild-turkey-8-401p.html
+11. Trail running gaiter without strap, like https://www.trekking-lite-store.com/dirty-girl-gaiters-switchbacks.html size XL or https://www.etsy.com/listing/150635965/skully?ref=shop_home_active_39 size US-XL.
