@@ -12,3 +12,5 @@
 10. Spil "Hero Quest": https://snydepels.dk/products/heroquest-en (1049,-)
 11. Philips Avance Collection Airfryer XXL (cirka 1400 ved Amazon.de)
 12. Western Digital WDBMMA01 10 TB harddisk (til erstatning for gammel NAS): https://www.amazon.de/-/en/WD100EFAX-WD-Red-Hard-Drive/dp/B077RRQPRS/ref=sr_1_1?dchild=1&keywords=WD100EFAX&qid=1610491780&sr=8-1&th=1 (2355,-)
+
+13. https://www.hm.com.cn/en_cn/0585844001.html
